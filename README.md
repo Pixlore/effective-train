@@ -1,0 +1,1 @@
+game name: Buisness Control|Plot:Make a buisness to buy or sell transportation, buisnesses such as mall, resources and you can name your buisness (e.g. The cool guys LLC.) To win, you need to have $5 million And be CEO of the buisness.|Info: This can be avalible on TV, Mobile except Spetcrum, Tablet and IPad, Computer, Laptop And PC. Expected Release Date: October 27th 2024.
